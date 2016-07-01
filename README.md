@@ -1,2 +1,4 @@
-# Jonathan R. Pribesh's Official Resume
-> Developer / Designer / Innovator
+# **Jonathan R. Pribesh**
+> `Developer / Designer / Innovator`
+
+## *Official Resume*
